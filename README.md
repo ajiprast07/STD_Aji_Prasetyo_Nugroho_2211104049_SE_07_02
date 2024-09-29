@@ -1,0 +1,1 @@
+# STD_Aji_Prasetyo_Nugroho_2211104049_SE_07_02-
